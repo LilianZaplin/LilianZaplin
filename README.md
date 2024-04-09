@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on multimodal health data analyses.
 - 📫 You can reach me via email at lilian.zaplin@sympatico.ca
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: Love the classics--classical music, fine art, and ballet.
+- ⚡ Fun fact: Love the classics--classical music, fine art, and ballet!
 
 
